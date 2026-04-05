@@ -1,2 +1,2 @@
 # BlackJackGame
-I made this project because sanskriti didi told me to....
+I made this project because sanskriti didi told me to....Helppppp
